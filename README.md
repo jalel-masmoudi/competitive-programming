@@ -377,7 +377,7 @@ MIT License - Learn, practice, and grow!
 
 **Jalel Masmoudi**  
 Computer Science Student | Competitive Programmer  
-📧 Contact: jalel.masmoudi@example.com
+📧 Contact: m.j.masmoudi1@gmail.com
 
 ---
 
